@@ -8,3 +8,9 @@ We look forward to seeing you there!
 [View Presentation Slide](https://docs.google.com/presentation/d/1TW6k6NpDUd90xVkqTxakA0MbjzGjm3unIcxyf9DVg-E/edit?usp=sharing)
 
 YouTube Video Link :- https://youtu.be/sI-FQsQJQSY?t=1281
+
+
+![kubecon_yash](https://github.com/user-attachments/assets/ae6681c5-8531-46cf-9853-6455dfb326de)
+
+
+![WhatsApp Image 2024-08-30 at 00 39 26](https://github.com/user-attachments/assets/100b32ac-67d5-46c4-bc3b-4138be245421)
